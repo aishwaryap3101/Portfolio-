@@ -1,4 +1,4 @@
-# Aishwarya Patil Reddy
+# Aishwarya Patil
 
 ## AI Engineer | Audio and Video Production Portfolio
 
